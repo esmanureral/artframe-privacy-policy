@@ -10,7 +10,7 @@ Bu repository, ArtFrame uygulaması için Google Play Store gizlilik politikası
 
 ## 📞 İletişim
 
-Gizlilik politikası ile ilgili sorularınız için:esmanur2eral@gmail.coö
+Gizlilik politikası ile ilgili sorularınız için:esmanur2eral@gmail.com
 
 ## 📅 Son Güncelleme
 
