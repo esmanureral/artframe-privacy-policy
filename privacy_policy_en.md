@@ -1,6 +1,6 @@
 # ArtFrame App Privacy Policy
 
-**Last Updated:** December 19, 2024
+**Last Updated:** 2025-09-29
 
 ## 1. Introduction
 
